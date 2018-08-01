@@ -1,5 +1,5 @@
 ## Welcome to LouisRoad.com the home page of our home on Louis Road
 
-### Are we grilling today?
+### When are we grilling?
 
-Yes!
+Thursday, August 2!
