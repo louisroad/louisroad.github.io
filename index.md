@@ -2,4 +2,4 @@
 
 ### When are we grilling?
 
-Thursday, August 2!
+Stay [tuned](https://www.youtube.com/watch?v=sVxUUotm1P4) for HOT TUB!
